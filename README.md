@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @amymycat
+- 👋 Hi, I’m @amymycat but my new user is 🇲🇽 🎧 𝐿𝒾𝓏𝑒𝓉𝒽 🎧 🇲🇽
 - 👀 I’m interested in doing new stuf at github
 - 🌱 I’m currently learning new stuff
 - 💞️ I’m looking to collaborate on new progects
